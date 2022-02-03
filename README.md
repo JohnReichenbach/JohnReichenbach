@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @JohnReichenbach
+- I'm a Computer Sceince and Game Development student currently looking to start my career in either industry.
